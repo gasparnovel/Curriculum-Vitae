@@ -13,7 +13,7 @@
 ### **Redes sociales**
 
 + Correo electrónico: [gasparnovel99@gmail.com](mailto:gasparnovel99@gmail.com)
-+ Europass: [Gaspar Novel Porcel](https://europa.eu/!Hm68rj)
++ Europass: [Gaspar Novel Porcel](https://europa.eu/!CY47Hb)
 + Github: [gasparnovel](https://github.com/gasparnovel)
 
 ### **Sobre mi**
