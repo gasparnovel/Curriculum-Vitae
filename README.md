@@ -12,7 +12,7 @@
   
 ### **Redes sociales**
 
-+ Correo electrónico: [gasparnovel99@gmail.com](mailto:gnovel@cifpfbmoll.eu)
++ Correo electrónico: [gnovel@cifpfbmoll.eu](mailto:gnovel@cifpfbmoll.eu)
 + Europass: [Gaspar Novel Porcel](https://europa.eu/!CY47Hb)
 + Github: [gasparnovel](https://github.com/gasparnovel)
 
